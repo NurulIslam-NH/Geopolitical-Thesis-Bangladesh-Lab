@@ -57,7 +57,7 @@ Traditional military coups are obsolete. The new model uses "Engineered Chaos."
 
 **Figure 2: The Fall of Sovereignty**
 *(Scenes from the 2024 Protests leading to the transition)*
-![Figure 2: Image of massive protests during the fall of Sheikh Hasina regime](protest.jpg)
+![Figure 2: Image of massive protests during the fall of Sheikh Hasina regime](protest.jpeg)
 *Source: [Al Jazeera Timeline](https://www.aljazeera.com) / Public Archives.*
 
 ---
