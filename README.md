@@ -57,7 +57,7 @@ Traditional military coups are obsolete. The new model uses "Engineered Chaos."
 
 **Figure 2: Scenes from the 2024 Protests**
 *(Visual representation of the engineered chaos leading to transition)*
-![Figure 2: Scenes from the 2024 Protests leading to transition](protest.jpg)
+![Figure 2: Scenes from the 2024 Protests leading to transition](protest.jpeg)
 *Source: [Al Jazeera Timeline](https://www.aljazeera.com) / Public Archives.*
 
 ---
