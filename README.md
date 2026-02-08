@@ -43,7 +43,7 @@ Traditional military coups are obsolete. The new model uses "Engineered Chaos."
 
 **Figure 2: The Fall of Sovereignty**
 *(Scenes from the 2024 Protests leading to the transition)*
-![Protest Image](protest.jpg)
+![Protest Image](protest.jpeg)
 *Source: Al Jazeera Timeline / Public Archives.*
 
 ---
